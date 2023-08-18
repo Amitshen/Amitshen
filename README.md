@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **developer.amit.er@gmail.com**
 
-- ⚡ Fun fact **serious about tech**
+- ⚡ Fun fact **I'm latest**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
